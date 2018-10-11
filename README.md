@@ -1,0 +1,1 @@
+http://widget.pkopy.pl
